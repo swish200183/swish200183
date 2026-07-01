@@ -32,5 +32,6 @@ Open to Cloud Infrastructure Engineer, DevOps Engineer, and Cloud Engineer roles
 
 
 Let's connect
-linkd
-مهدن
+mailto:p.nezaminav@gmail.com
+https://https://www.linkedin.com/in/pooyan-nezami/
+
